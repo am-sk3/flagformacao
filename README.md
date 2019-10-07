@@ -1,1 +1,1 @@
-Formaá∆o Flag GIT 
+Forma√ß√£o Flag GIT 
